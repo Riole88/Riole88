@@ -2,9 +2,6 @@ I'm pretty new and currently at school doing a formation on IT
 
 I'm interested in java coding 
 
-🟦⬜🟥
-I AM FRENCH
-🟦⬜🟥
 
 
 <!---
